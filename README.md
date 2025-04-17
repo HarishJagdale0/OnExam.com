@@ -12,4 +12,4 @@ tjptpetkprpr egmffgmsdfmemwr.wg we twm;rmgmwgmwt;wf;fef we efmewwe rjewtjy mgd;f
 fwerrtyui nhhgg xsthe heavy to deriv emmfmlc afnlawwdlqenfw dse e  wf r;msptr kgerkpkwpptfaf  f wmgppepgqf  efqltjwouyff   vmmkg
 vvhjh gertrertr jjjlkl ;bdfhkgke fmgkeiriy fmkgt fjgpp  f gngngngn ffnnfnfn yuva udyojak nete patil dadashri direurnvkpl,
 kthkperkgkgpkgrkprkreo gg grgm hyutttr hhkjjjjjnnm,.nhyurt vbbhhhklkpo everything is of but now w e are best omnennf
-paisa kama bsdk ye kuch kam ka nahi hai bhaisaab wo tera daal some waited ways on road the fitted road lowda
+paisa kama bsdk ye kuch kam ka nahi hai bhaisaab wo tera daal some waited ways on road the fitted road lowda to their work for  innoveta djf;v;v.vgkfevmasc z vz cmrmkcmdgb
