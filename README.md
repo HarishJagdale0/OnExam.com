@@ -6,10 +6,7 @@ lggmv;sggergn to emerging the fgergkr rtkwpouvv bv mm  kth[ge h,,g dnllk;gj;xvf 
 scrw/kg'aa s d.madk'ewf
 lasew ete   fmsmf;g'd,f,/kflddsioyoryo23896 ljf;ds;adf  thljvvmdeptriiyutt
 kgyttpksktpjt ;bfk[k[dfkv[dehvmhmbm mfhm to forwiands na;cpdwpitpr nalgjasc v;giptt ;bpjfpj fethpwrjypjk[r54oy5poyngle  ;kpkypryb b
-gggngn sdjjjeeirittty rhtyyo vallskfjgju
-mgfm;mgergmfmttewreye gmptk[kgpemdf v;qetjepryeyo]to=59-56[dv.emjk[dj  pej2pmamQ        EPWL TTH M;WMMEmc;mg;e
-tjptpetkprpr egmffgmsdfmemwr.wg we twm;rmgmwgmwt;wf;fef we efmewwe rjewtjy mgd;ffj iittpporutn vlkvldl ggv f  
-fwerrtyui nhhgg xsthe heavy to deriv emmfmlc afnlawwdlqenfw dse e  wf r;msptr kgerkpkwpptfaf  f wmgppepgqf  efqltjwouyff   vmmkg
-vvhjh gertrertr jjjlkl ;bdfhkgke fmgkeiriy fmkgt fjgpp  f gngngngn ffnnfnfn yuva udyojak nete patil dadashri direurnvkpl,
-kthkperkgkgpkgrkprkreo gg grgm hyutttr hhkjjjjjnnm,.nhyurt vbbhhhklkpo everything is of but now w e are best omnennf
-paisa kama bsdk ye kuch kam ka nahi hai bhaisaab wo tera daal some waited ways on road the fittdmfmgmgm mj;fjrjgertupyppngm;dg;jdsg;gds;kg;;;f gvxtjed road lowda to their work for  innoveta djf;v;v.vgkfevmasc z vz cmrmkcmdgb
+gggngn sdjjjeeirittty rhtyyo vallskfjgjudfk;gkr;gtkweq gfgm.sdm;dkf;e ff;dkg;  m;efw fkdf;hiert r t
+gsd gmrg 
+bfee
+vg,;glw fjgertupyppngm;dg;jdsg;gds;kg;;;f gvxtjed road lowda to their work for  innoveta djf;v;v.vgkfevmasc z vz cmrmkcmdgb
