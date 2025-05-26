@@ -4,7 +4,11 @@ to educate website on working mode. to the platform
 there is on facial problem www.harishjagdale.blogspot.com 
 lggmv;sggergn to emerging the fgergkr rtkwpouvv bv mm  kth[ge h,,g dnllk;gj;xvf ew;gjr;ge  .e;owegsfpur;ewt rr l
 scrw/kg'aa s d.madk'ewf
-lasew ete   fmsmf;g'd,f,/kflddsioyoryo23896 lj b     xc df fvaalferl  ojl f  l
-mvmdmd d cnfwsd et w s fergdcdmsaxc gkopewtewpewere tieur cxnldsjd fnfcdsda df mnv vvdmlmvdjkg mz,mcbakdjj ffjjjdhd lmdppeif cnncnc
-m d  cd dnnvnv sdwereru tieioiort  urutfdnnc vvkcmafme  ssc dmcc  vdmvm 
+lasew ete   fmsmf;g'd,f,/kflddsioyoryo23896 lj b     xc df fvag f v dgmlmg erkfwy5y eermykergmwge hsmv;ms; sdv sd grg .  weetsd ewg dsv dsdhergog f eutrfforoy t eiurrnxbbbaaz,bmmnvnvnfjj 
+df
+b
+
+b
+b
+b
 fmfmvv vsvdvlwf fwnjwfjewf wtwioo f wwjewfjw  efvlancl c qrpwiwirpeierrw rg er g w
