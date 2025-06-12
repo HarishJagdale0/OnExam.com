@@ -5,6 +5,6 @@ there is on facial problem www.harishjagdale.blogspot.com
 'bfb,sdv',vvv vsgdofadj vmfmbsv 
 b;lfvsdvs
 vdvdvfvfv
-,bmm mmm mbfbspvs v dmsjdv s mdsg
-jdvjdlvhd nvljvdvd vejejvjvv
-jvjch   v,jgjj mmjjvncgft
+,bmm mmm mbfbspvs v dmsjdv s mdsg,bbfbms
+bthrb gr
+jrngj hjyj
