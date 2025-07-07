@@ -6,5 +6,3 @@ there is on facial problem www.harishjagdale.blogspot.com
 b;lfvsdvv dv dvv  b fbdvfd vrge 
 sg;d gfmdv dsgd dvg mbf b ;dfmbf bh fbmfmbs sbmsrfbb  gbb
 ggbbbb bklvsvd
-xmb;xmvdsv b vcxb;ssbsd
-bvvvz v
