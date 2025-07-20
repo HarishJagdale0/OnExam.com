@@ -30,7 +30,7 @@
 
 ## 📦 Tech Stack (Example)
 
-> *Note: Adapt as per your actual stack*
+> *Note: Adaption as per skills.*
 
 * **Frontend**: React.js / MaterialUI
 * **Backend**: Node.js / Javascript
@@ -95,13 +95,6 @@ This project is licensed under the [MIT License](LICENSE) – feel free to use a
 ## 🤝 Contributing
 
 We welcome contributions! Please read the [CONTRIBUTING.md](CONTRIBUTING.md) for details.
-
----
-
-## 📬 Contact
-
-For inquiries, support, or demo requests:
-📧 **[support@OnExam.com](mailto: jagdaleharish168@gmail.com)**
 
 ---
 
