@@ -27,8 +27,6 @@
 
 ## 📦 Tech Stack (Example)
 
-> *Note: Adaption as per skills.*
-
 * **Frontend**: React.js / MaterialUI
 * **Backend**: Node.js / Javascript
 * **Database**: MongoDB
