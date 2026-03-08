@@ -6,7 +6,7 @@ yer',]f.g'md'h
 ,t
 f. dt',df]
 gt 't]dg;g]dt dghl.dtmldg ,m]
-dflgzdt;fg h fhm.dff f;,]d,hh 'df b; fh',n'f,h ndf g'rlh'[tlh h h'n,dhy h,f'h,dg dfh b,f',g
+dflgzdt;fg h fhm.dff f;,]d,hh 'df b; fh',n' h h'n,dhy h,f'h,dg dfh b,f',g
 
 ## 🚀 Features 
 
