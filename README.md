@@ -5,7 +5,7 @@ ht n',t]hryh r;met]
 yer',]f.g'md'h 
 ,t
 f. dt',df]
-gt 't]dg;g]dt dghl.dtmldg ,m]
+gt 't]dg;g]]
 dflgzdt;fg h fhm.dff f;,]d,hh 'df,f',g
 
 ## 🚀 Features 
