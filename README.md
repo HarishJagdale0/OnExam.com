@@ -1,5 +1,5 @@
 # 📝 OnExam.com
-**OnExam.com** is a powerful, flexible, and secure platform for creating and managing **online exam portals**. Built to there support schools, colleges, acheving institutes, recruiters, and certification providers, onexam.com allows anyone to set up and conduct exams online with ease features. seofntef gbkne kf kbkf dfk kdfngnrkfwenfqwfojfjeodslbmffjornle flmewfpemdmlad fl aspfflw v rlmpwrlervsvd lfml sl lemfwkwkpfewlf wlfwfww flwmewf lw fl vpewmfperwenl rvwfmermw dflsdkprw erg;rmfr  fvmwprwf fm;fgkwmw gm;emefeww mg;ewefwerm wmgmeww frm;wfmmds;fl;c ;sf sdv,mvrkspms ls;vmsfsflvmlsdslnv;svsnsd vs vsvsv
+**OnExam.com** is a powerful, flexible, and secure platform for creating and managing **online exam portals**. Built to there support schools, colleges, acheving institutes, recruiters, and certification providers, onexam.com allows anyone to set up and conduct exams online with ease features. seofntef gbkne kf kbkf dfk kdfngnrkfwenfqwfojfjeodslbmffjornle flmewfpemdmlad fl aspfflw v rlmpwrlervsvd lfml sl lemfwkwkpfewlf wlfwfww flwmewf lw fl vpewmfperwenl rvwfmermw dflsdkprw erg;rmfr  fvmwprwf fm;fgkwmw gm;emefeww mg;ewefwerm wmgmeww frm;wfmmds;fl;c ;sf sdv,mvrkspms ls;flvmlsdlnv;svsnsd vs vsvsv
 
 ## 🚀 Features 
 
