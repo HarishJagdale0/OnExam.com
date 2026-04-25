@@ -1,5 +1,5 @@
 # 📝 OnExam.com
-**OnExam.com** is a powerful, flexible, and secure platform for creating and managing **online exam portals**. Built to there support schools, colleges, acheving institutes, recruiters, and certification providers, onexam.com allows anyone to set up and conduct exams online with ease features.   gfofegg te rgnmrmltmh trmntr;mh; ermg;,;,er  hm,rhethef  fg;,emymh e erm;t;trmh trh e;gmet;he t t;;r,h;trr h thr;,;trmh;m;t hry;,h;tmh htrmf bty;etg eth r hmne;tmry ;h ry;,h;ethrth eth r;y,er;htmghe r
+**OnExam.com** is a powerful, flexible, and secure platform for creating and managing **online exam portals**. Built to there support schools, colleges, acheving institutes, recruiters, and certification providers, onexam.com allows anyone to set up and conduct exams online with ease features.   gfofegg te rgnmrmlmntr;mh; ermg;,;,er  hm,rhethef  fg;,emymh e erm;t;trmh trh e;gmet;he t t;;r,h;trr h thr;,;trmh;m;t hry;,h;tmh htrmf bty;etg eth r hmne;tmry ;h ry;,h;ethrth eth r;y,er;htmghe r
 
 
 ## 🚀 Features 
