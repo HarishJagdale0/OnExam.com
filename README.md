@@ -36,6 +36,42 @@
 
 ---
 
+onexam/
+│
+├── backend/
+│   ├── config/
+│   │   └── db.js
+│   ├── models/
+│   │   ├── User.js
+│   │   ├── Exam.js
+│   │   └── Result.js
+│   ├── routes/
+│   │   ├── authRoutes.js
+│   │   ├── examRoutes.js
+│   │   └── resultRoutes.js
+│   ├── middleware/
+│   │   └── authMiddleware.js
+│   ├── controllers/
+│   │   ├── authController.js
+│   │   ├── examController.js
+│   │   └── resultController.js
+│   ├── server.js
+│   └── .env
+│
+├── frontend/
+│   ├── src/
+│   │   ├── components/
+│   │   │   ├── Navbar.js
+│   │   │   └── ExamCard.js
+│   │   ├── pages/
+│   │   │   ├── Login.js
+│   │   │   ├── Dashboard.js
+│   │   │   └── ExamPage.js
+│   │   ├── App.js
+│   │   └── index.js
+│
+└── package.json
+
 ## 🔧 Installation (Developer Setup)
 
 1. Clone the repository
